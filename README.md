@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @flena1000
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me?
+- Just send me friend req on discord username: flena1000 or else join my discord server link: https://discord.gg/byteclub
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I am currently working on Nitro gen.
